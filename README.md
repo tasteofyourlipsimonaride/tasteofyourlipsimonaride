@@ -2,14 +2,12 @@
 。•.    Haaaii  !!!    I'm Yumee .
 
 
-ᅠ
-ᅠ
 
-ᅠ
-ᅠ
-ᅠ
-![17633231752495977226416117006799](https://github.com/user-attachments/assets/fadc3980-14bb-4cee-a55d-5d6751b1818e)
 
+
+
+
+![17633287184046007435440666285455](https://github.com/user-attachments/assets/5e209c9b-3fe4-4938-b752-d1c8d7171867)
 
 
 
