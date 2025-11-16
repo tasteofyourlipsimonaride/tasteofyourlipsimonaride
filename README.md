@@ -14,7 +14,3 @@
 
 
 
-
-https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/github.svg
-
-https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/twitter.svg
