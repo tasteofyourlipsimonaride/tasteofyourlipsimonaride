@@ -8,4 +8,5 @@
 ᅠ
 ᅠ
 ᅠ
-http://https://img1.picmix.com/output/pic/normal/9/8/6/8/13208689_a323c.gif
+![17633231752495977226416117006799](https://github.com/user-attachments/assets/fadc3980-14bb-4cee-a55d-5d6751b1818e)
+
