@@ -13,5 +13,3 @@
 
 
 
-![17633260234115372924485241642189](https://github.com/user-attachments/assets/cbce41f4-82af-48e7-a84b-a7fad9037e81)
-
