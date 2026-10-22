@@ -7,7 +7,7 @@
 
 
 
-main fd : The Goldfinch . It . One Wheat Mark . Strangers things . the turning.. ( andd i forgot )
+main fd : The Goldfinch . It . One Wheat Mark . Strangers things . the turning . Rick and Morty . Twitch..  ( andd i forgot )
 
 
 foah foah foah
