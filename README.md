@@ -3,7 +3,7 @@
 
 
 ᅠ
-ᅠ I'm so laaaээzy .
+ᅠ I'm so laaaээzy 🥺🥺 .
 
 
 
