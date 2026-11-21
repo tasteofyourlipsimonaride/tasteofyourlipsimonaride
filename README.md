@@ -10,9 +10,9 @@
 main fd : The Goldfinch . It . One Wheat Mark . Strangers things . the turning . Rick and Morty . Ru Twitch . .  ( andd i forgot )
 
 
-foah foah foah
 
 
+     @yourtoxiclmslippinggunder ana me
 <img width="400" height="300" alt="473157" src="https://github.com/user-attachments/assets/fb246f1f-f2a5-41ed-86cb-386ed84e15bc" />
 
 
