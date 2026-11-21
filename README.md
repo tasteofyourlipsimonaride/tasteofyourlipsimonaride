@@ -12,18 +12,20 @@ main fd : The Goldfinch . It . One Wheat Mark . Strangers things . the turning .
 
 
 
-     @youretoxiclmslippingunder and me )) ⤵
+     @youretoxiclmslippingunder and me )) 🐖 ⤵⤵⤵
      
 <img width="400" height="300" alt="473157" src="https://github.com/user-attachments/assets/fb246f1f-f2a5-41ed-86cb-386ed84e15bc" />
 
-                            @Try me 
+                            @Try me чювакии
 <img width="540" height="406" alt="473173" src="https://github.com/user-attachments/assets/a7762245-2706-4669-aa21-b8c778ad20a9" />
 
 
 
 
+ᅠ
+ᅠ
 
-》》》》》ᅠhe / him / his . only !!! but if u close friends then MAY any prns . 《《《《《
+ᅠhe / him / his . only !!! but if u close friends then MAY any prns . 《《《《《
 
 
 
