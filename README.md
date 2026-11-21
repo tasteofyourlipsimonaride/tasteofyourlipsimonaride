@@ -3,7 +3,7 @@
 
 
 ᅠ
-ᅠ I'm so laaaээzy 🥺🥺 .
+ᅠ I'm so laaaээzy 🥺 🥺 .
 
 
 
@@ -25,7 +25,7 @@ main fd : The Goldfinch . It . One Wheat Mark . Strangers things . the turning .
 ᅠ
 ᅠ
 
-ᅠhe ,, him ,, his ( он ,,его) . ONLY!!! but if u close friends then MAY any prns . 
+BTW, he ,, him ,, his ( он ,,его) . ONLY!!! but if u close friends then MAY any prns . 
 
 
 
