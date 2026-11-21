@@ -7,7 +7,7 @@
 
 
 
-main fd : The Goldfinch . It . One Wheat Mark . Strangers things . the turning . Rick and Morty . Ru Twitch . .  ( andd i forgot )
+main fd : The Goldfinch . It . One Wheat Mark . Strangers things . the turning . Fight Club.  Rick and Morty . Ru Twitch . .  ( andd i forgot )
 
 
 
@@ -35,5 +35,5 @@ BTW, he ,, him ,, his ( он ,,его) . ONLY!!! but if u close friends then MAY
 
 
 <img width="1080" height="625" alt="473183" src="https://github.com/user-attachments/assets/e3d6ca14-1440-4d76-8fe7-cbc1e7312718" />
-
+       MAFANYA — TRAXXXX
 
