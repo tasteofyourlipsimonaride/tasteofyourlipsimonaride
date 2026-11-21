@@ -12,7 +12,7 @@ main fd : The Goldfinch . It . One Wheat Mark . Strangers things . the turning .
 
 
 
-     @yourtoxiclmslippinggunder and me)
+     @yourtoxiclmslippingunder and me)
 <img width="400" height="300" alt="473157" src="https://github.com/user-attachments/assets/fb246f1f-f2a5-41ed-86cb-386ed84e15bc" />
 
 
@@ -21,7 +21,7 @@ main fd : The Goldfinch . It . One Wheat Mark . Strangers things . the turning .
 
 ᅠ![74133bbd08b78942505ce4c7034c0a76.jpg](https://github.com/user-attachments/assets/54cdf3fa-f47b-48fe-a550-262a9c335bfd)
 
-ᅠhe / him / his . only !!! but if u close friends then any prns . 
+ᅠhe / him / his . only !!! but if u close friends then MAY any prns . 
 
 
 
