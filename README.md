@@ -25,19 +25,14 @@ main fd : The Goldfinch . It . One Wheat Mark . Strangers things . the turning .
 ᅠ
 ᅠ
 
-ᅠhe / him / his . only !!! but if u close friends then MAY any prns . 《《《《《
+ᅠhe ,, him ,, his ( он ,,его) . ONLY!!! but if u close friends then MAY any prns . 
 
 
 
 
 
 
-ᅠ![74133bbd08b78942505ce4c7034c0a76.jpg](https://github.com/user-attachments/assets/54cdf3fa-f47b-48fe-a550-262a9c335bfd)
 
-
-
-
-![IMG_20260422_031101_149.jpg](https://github.com/user-attachments/assets/248222de-d63b-4201-8c6c-d4e1459ffc67)
 
 <img width="1080" height="625" alt="473183" src="https://github.com/user-attachments/assets/e3d6ca14-1440-4d76-8fe7-cbc1e7312718" />
 
