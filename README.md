@@ -13,7 +13,8 @@ main fd : The Goldfinch . It . One Wheat Mark . Strangers things . the turning .
 foah foah foah
 
 
-<img width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/2826dc92-9fba-4a1d-a30c-725216f8f217" />
+<img width="400" height="300" alt="473157" src="https://github.com/user-attachments/assets/fb246f1f-f2a5-41ed-86cb-386ed84e15bc" />
+
 
 
 
