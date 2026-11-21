@@ -12,6 +12,11 @@ main fd : The Goldfinch . It . One Wheat Mark . Strangers things . the turning .
 
 foah foah foah
 
+<a href="https://github.com/yourtoxiclmslippinggunder">
+  <img src="<img width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/1fd6eba1-f2ad-4a28-a80c-20b0897fb8a6" />
+" width="250" />
+</a>
+
 
 
 ᅠ![74133bbd08b78942505ce4c7034c0a76.jpg](https://github.com/user-attachments/assets/54cdf3fa-f47b-48fe-a550-262a9c335bfd)
