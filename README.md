@@ -37,8 +37,8 @@ BTW, he ,, him ,, his ( он ,,его) . ONLY!!! but if u close friends then MAY
 <img width="1080" height="625" alt="473183" src="https://github.com/user-attachments/assets/e3d6ca14-1440-4d76-8fe7-cbc1e7312718" />
        MAFANYA — TRAXXXX    ᅠᅠᅠ#122гэнг
 <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31k7lqxafuxd2opelc2vz2de2f7y&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=592b2b">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31k7lqxafuxd2opelc2vz2de2f7y&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31k7lqxafuxd2opelc2vz2de2f7y&cover_image=false&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ab2727&bar_color_cover=false">
   </a>
 </p>
 
