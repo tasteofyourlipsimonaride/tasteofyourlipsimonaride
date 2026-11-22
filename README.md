@@ -26,9 +26,6 @@ main fd : The Goldfinch . It . One Wheat Mark . Strangers things . the turning .
 </p>
 
 
-ᅠ
-ᅠ
-
 BTW, he ,, him ,, his ( он ,,его) . ONLY!!! but if u close friends then MAY any prns . 
 
 
@@ -39,7 +36,7 @@ BTW, he ,, him ,, his ( он ,,его) . ONLY!!! but if u close friends then MAY
 
 
 <img width="1080" height="625" alt="473183" src="https://github.com/user-attachments/assets/e3d6ca14-1440-4d76-8fe7-cbc1e7312718" />
-       MAFANYA — TRAXXXX    ᅠᅠᅠ#122гэнг
+       ᅠᅠᅠᅠᅠᅠᅠᅠᅠ    ᅠᅠᅠ#122гэнг
        <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31k7lqxafuxd2opelc2vz2de2f7y&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31k7lqxafuxd2opelc2vz2de2f7y&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false">
