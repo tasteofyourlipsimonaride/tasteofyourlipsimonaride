@@ -19,7 +19,11 @@ main fd : The Goldfinch . It . One Wheat Mark . Strangers things . the turning .
                             @Try me чювакии
 <img width="540" height="406" alt="473173" src="https://github.com/user-attachments/assets/a7762245-2706-4669-aa21-b8c778ad20a9" />
 
-
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31k7lqxafuxd2opelc2vz2de2f7y&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31k7lqxafuxd2opelc2vz2de2f7y&cover_image=false&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ab2727&bar_color_cover=false">
+  </a>
+</p>
 
 
 ᅠ
@@ -41,11 +45,7 @@ BTW, he ,, him ,, his ( он ,,его) . ONLY!!! but if u close friends then MAY
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31k7lqxafuxd2opelc2vz2de2f7y&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false">
   </a>
 </p>
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31k7lqxafuxd2opelc2vz2de2f7y&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31k7lqxafuxd2opelc2vz2de2f7y&cover_image=false&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ab2727&bar_color_cover=false">
-  </a>
-</p>
+
 
 
 
